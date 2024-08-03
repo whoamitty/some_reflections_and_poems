@@ -6,5 +6,5 @@ Dans un PALACE moi je vie !!!
 
 Heureux je suis pour les honorer 😁
 
-Puisque subitement mis à ma place,
+Puisque subitement mis à ma place,  
 plus heureux que quiconque ils seraient 🌬️
