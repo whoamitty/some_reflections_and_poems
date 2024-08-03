@@ -1,5 +1,6 @@
 # Apologie de linux
 
+```
 Du temps où j'étais à mes premiers essais,  
 Voici, en quelque sorte ce que je pensais,  
 Avec un peu de fiction,  
@@ -39,5 +40,5 @@ LINUX CE N'EST PAS DU LUXE, MAIS BIEN PLUS !
 
 
 copyright @whoamitty
-
+```
 
