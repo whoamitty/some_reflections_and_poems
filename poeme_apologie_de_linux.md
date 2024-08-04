@@ -19,7 +19,7 @@ Tu seras le vrai toi.
 Tu suis ?  
 
 Linux, ce n'est pas du luxe  
-Mais de quoi pour ta machine être Le roi,  
+Mais de quoi pour ta machine être LE roi,  
 De nos jours, les GAFAM font la loi,  
 Mais Linux a un objectif bien plus droit,  
 C'est pour cela qu'aujourd'hui, je les pointe du doigt.  
