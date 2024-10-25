@@ -1,8 +1,7 @@
 ```
-parfois la vie est belle
-parfois, elle ne l'est pas
-mais souvant c'est car son beau profile est caché
-cherche le ❤️
+Parfois la vie est belle,
+mais parfois elle ne l'est pas car son beau profil est caché.
+Cherche le ❤️ 
 
-copyright @whoamitty
+@whoamitty
 ```
