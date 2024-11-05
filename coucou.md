@@ -10,7 +10,7 @@ principal acteur  de nos rencontres
 
 coucou, juste beau
 par son art de nous lier
-il ce montre tel un voilier
+ce montre tel un voilier
 guide pour montrer
 un destin riche en communoté
 
