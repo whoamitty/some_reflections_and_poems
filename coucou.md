@@ -24,7 +24,7 @@ par elle l'amour s'enchevettre
 
 coucou, juste simple
 avec un beau sourir
-nul besoin de plus pour inspirer la confiance
+nul besoin de plus pour inspirer LA confiance
 vecteur de communion
 montre toi alors sous ton plus beau coucou
 
