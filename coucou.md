@@ -22,11 +22,15 @@ tel une simple lettre
 par elle l'amour s'enchevettre
 
 
-coucou, juste simple
+coucou, juste simple,
 avec un beau sourir
-nul besoin de plus pour inspirer confiance
-vecteur de communion
+nul besoin de plus pour inspirer LA confiance
+
+
+coucou, juste un mot ?
+il est juste beau, riche, simple et intime
 montre toi alors sous ton plus beau coucou
+
 
 lun. 04 nov. 2024 16:20:12 -03
 copyright @whoamitty
