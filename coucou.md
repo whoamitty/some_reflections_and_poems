@@ -3,7 +3,7 @@
 ```
 coucou, juste un mot ?
 je te dirais ce qu'il vaux
-peut en connaissent la valeur
+peu en connaissent la valeur
 mais pour lui c'est l'heure
 principal acteur de nos belle rencontres
 
