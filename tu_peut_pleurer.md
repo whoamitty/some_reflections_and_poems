@@ -8,15 +8,18 @@ ou la raison
 pour son reffus ou acceptation,
 à celui qui la porte, est la dûr déscision
 
-guide en remise en question
-tel un avertissement
+guide pour la remise en question
+tel un sévère avertissement
 pouvant alors être bénédiction
 
-car la remise en question #proposition d'un amis
-est un tel investissement
-pouvant être bénédiction 
+Bénédiction pour bien plus
+car meilleur amis
+de l'empathie
+ainsi abondonné à ton sort ?
+Non loin sera le récomfors
 
-empathie
+
+lun. 09 déc. 2024 15:34:39 -03
 copyright @whoamitty
 ```
 
