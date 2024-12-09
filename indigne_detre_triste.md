@@ -12,3 +12,6 @@ plus heureux que quiconque ils seraient 🌬️
 
 copyright @whoamitty
 ```
+
+Pour une vision un peut oposé,  
+tu peut jeter un coup d'oeil à [indigne_detre_triste](https://github.com/whoamitty/some_reflections_and_poems/blob/main/tu_peut_pleurer.md)

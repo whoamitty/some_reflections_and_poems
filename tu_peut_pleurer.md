@@ -23,5 +23,8 @@ lun. 09 déc. 2024 15:34:39 -03
 copyright @whoamitty
 ```
 
+Pour une vision un peut oposé,  
+tu peut jeter un coup d'oeil à [indigne_detre_triste](https://github.com/whoamitty/some_reflections_and_poems/blob/main/indigne_detre_triste.md)
+
 
 
