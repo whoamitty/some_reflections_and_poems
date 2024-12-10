@@ -1,30 +1,30 @@
 ```
-triste, un état d'être
+Triste, un état d'être  
 
-qu'importe la situation
+Qu'importe la situation  
 
-ou la raison
+Ou la raison  
 
-pour son reffus ou acceptation,
-à celui qui la porte, est la dûr déscision
+Pour son refus ou acceptation,  
+À celui qui la porte, est la dure décision  
 
-guide pour la remise en question
-tel un sévère avertissement
-pouvant alors être bénédiction
+Guide pour la remise en question  
+Tel un sévère avertissement  
+Pouvant alors être bénédiction  
 
-Bénédiction pour bien plus
-car son meilleur amis
-est l'empathie
-ainsi abondonné à ton sort ?
-Non loin sera le récomfors
+Bénédiction pour bien plus  
+Car son meilleur ami  
+Est l'empathie  
+Ainsi abandonné à ton sort ?  
+Non loin sera le réconfort 
 
 
 lun. 09 déc. 2024 15:34:39 -03
 copyright @whoamitty
 ```
 
-Pour une vision un peut oposé,  
-tu peut jeter un coup d'oeil à [indigne_detre_triste](indigne_detre_triste.md)
+Pour une vision un peu opposée,  
+tu peux jeter un coup d'œil à [indigne_detre_triste](indigne_detre_triste.md)
 
 
 
