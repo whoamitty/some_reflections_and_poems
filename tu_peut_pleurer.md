@@ -1,9 +1,9 @@
 ```
-Triste, un état d'être  
+triste, un état d'être  
 
-Qu'importe la situation  
+qu'importe la situation  
 
-Ou la raison  
+ou la raison  
 
 Pour son refus ou acceptation,  
 À celui qui la porte, est la dure décision  
