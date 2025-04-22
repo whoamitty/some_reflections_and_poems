@@ -1,3 +1,4 @@
+```
 Ho mon seigneur
 J’avais peur 
 À ces mauvaise heures
@@ -18,11 +19,15 @@ Tu m'as Repéché araché du péché
 Souffrances abrégés
 
 Je ne craindrais rien car,
-même assoiffé chassé, jeté, ou rejeté
-par tes bras je suis enlacé
+Même assoiffé chassé, jeté, ou rejeté
+Par tes bras je demeure enlacé
 
 Merci Seigneur
 Je n'ai plus peur
 À tes belles heures
 Où ta lueur
 Me dévoile ta douceur
+
+mar. 22 avril 2025 16:22:53 -03
+```
+
