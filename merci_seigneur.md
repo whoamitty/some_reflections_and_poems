@@ -1,11 +1,11 @@
 # Merci seigneur ❤️‍🔥
 
 ```
-Oh mon seigneur 
-J’avais peur 
-À ces mauvaise heures 
-Où ma douleur 
-Me cachais ta lueur 
+Oh mon seigneur !!
+J’avais peur,
+À ces mauvaise heures,
+Où ma douleur
+Me cachais ta lueur
  
 Loin de moi je t’ai placé
 car laisser au passé reclasser mes idoles surclassés, à cette idée 
