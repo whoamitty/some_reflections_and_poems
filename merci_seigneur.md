@@ -8,13 +8,15 @@ Où ma douleur
 Me cachais ta lueur
 
 Loin de moi je t’ai placé
-Car laisser au passé reclasser mes idoles surclassés, à cette idée, j’étais effrayé 
+Car laisser au passé reclasser mes idoles surclassés, à cette idée,
+J’étais effrayé 
 J’ai finis par ne plus t’aimer 
 Mais c’est du passé 
 Ton agneaux m'as touché 
 
 Mon coeur et mes tourments je t'ai confié,
-Tu m'as repêché arraché du péché, souffrances abrégés
+Tu m'as repêché arraché du péché,
+Souffrances abrégés
 Même assoiffé,
 chassé,
 jeté,
