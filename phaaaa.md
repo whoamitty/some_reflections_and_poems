@@ -17,7 +17,8 @@ Qu'importe, les afflictions, ce qui m'importe
 est d'avec conviction  
 influer en ton nom  
 Sans m'inquiéter en vain  
-Je veillerais dans tes parvie  
+Veillant dans tes parvies
+Demeurant serain
 sur le chemin  
 que tu m'as choisis  
 ```  
