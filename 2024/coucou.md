@@ -30,5 +30,5 @@ montre toi alors sous ton plus beau coucou
 
 
 lun. 04 nov. 2024 16:20:12 -03
-copyright @whoamitty
+CC-BY @whoamitty
 ```

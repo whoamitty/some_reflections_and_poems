@@ -39,6 +39,6 @@ C'était l'apologie de l'OS LINUX
 LINUX CE N'EST PAS DU LUXE, MAIS BIEN PLUS !  
 
 Aug 3, 2024
-copyright @whoamitty
+CC-BY @whoamitty
 ```
 

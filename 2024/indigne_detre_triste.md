@@ -11,7 +11,7 @@ Puisque subitement mis à ma place,
 plus heureux que quiconque ils seraient 🌬️
 
 Aug 2, 2024
-copyright @whoamitty
+CC-BY @whoamitty
 ```
 
 Pour une vision un peut oposé,  

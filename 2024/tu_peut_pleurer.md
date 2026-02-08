@@ -20,7 +20,7 @@ Non loin sera le réconfort
 
 
 lun. 09 déc. 2024 15:34:39 -03
-copyright @whoamitty
+CC-BY @whoamitty
 ```
 
 Pour une vision un peu opposée,  
