@@ -69,6 +69,7 @@ Les changements sont effectués par la création d'une nouvelle versions du syst
 
 
 3. Création de Distribution facilité
+
 Puisque vous pouvez faire une nouvelle version de votre systeme
 assez simplement par nix
 Par définition, vous pouvez faire votre distribution
